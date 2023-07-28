@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Saurabh Pandey
-- 👀 I’m interested in ... Competitive Coding, Art and Illustrations.
+- 👀 I’m interested in ... Competitive Coding, and Art.
 - 🌱 I’m currently learning ... :)
 - 📫 How to reach me ... Email@pandeygrocks@gmail.com
 
